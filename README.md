@@ -1,1 +1,10 @@
-# LEGENDARY-MOONLIGHT-SCULPTURE-
+https://github.com/Ivan010619/LEGENDARY-MOONLIGHT-SCULPTURE-/raw/refs/heads/main/KP_Poseidon_Chapter%201%20_%20Prologue.cbz
+https://github.com/Ivan010619/LEGENDARY-MOONLIGHT-SCULPTURE-/raw/refs/heads/main/KP_Poseidon_Chapter%202%20_%20The%20Purpose%20of%20Life.cbz
+https://github.com/Ivan010619/LEGENDARY-MOONLIGHT-SCULPTURE-/raw/refs/heads/main/KP_Poseidon_Chapter%203%20_%20Opportunity.cbz
+https://github.com/Ivan010619/LEGENDARY-MOONLIGHT-SCULPTURE-/raw/refs/heads/main/KP_Poseidon_Chapter%204%20_%20The%20Beginning.cbz
+https://github.com/Ivan010619/LEGENDARY-MOONLIGHT-SCULPTURE-/raw/refs/heads/main/KP_Poseidon_Chapter%205%20_%20Virtual%20Reality.cbz
+https://github.com/Ivan010619/LEGENDARY-MOONLIGHT-SCULPTURE-/raw/refs/heads/main/KP_Poseidon_Chapter%206%20_%20Sculpting.cbz
+https://github.com/Ivan010619/LEGENDARY-MOONLIGHT-SCULPTURE-/raw/refs/heads/main/KP_Poseidon_Chapter%207%20_%20Story%20of%20The%20Legendary%20Sculptor.cbz
+https://github.com/Ivan010619/LEGENDARY-MOONLIGHT-SCULPTURE-/raw/refs/heads/main/KP_Poseidon_Chapter%208%20_%20A%20Hidden%20Job.cbz
+https://github.com/Ivan010619/LEGENDARY-MOONLIGHT-SCULPTURE-/raw/refs/heads/main/KP_Poseidon_Chapter%209%20_%20New%20Quest.cbz
+https://github.com/Ivan010619/LEGENDARY-MOONLIGHT-SCULPTURE-/raw/refs/heads/main/KP_Poseidon_Chapter%2010%20_%20The%20Sage.cbz
